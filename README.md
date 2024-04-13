@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @sparshshrma
-- 🌱 I’m looking for new grad opportunities to take off my IT career.
 - 👀 I’m interested in learning new languages and pracrice them
-- 📫 Ping me on my email--> Sparsh0508sgmail.com
+- 📫 Ping me on my email--> Sparsh0508s@gmail.com
 - ⚡ Fun fact: I love quantum physics.
